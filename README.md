@@ -18,6 +18,7 @@
 - [S.E. Rojie: Fire Fire](https://www.youtube.com/watch?v=ImPsBiFLzKs)
 - [D.O. Misiani & Shirati Jazz: Kiseru](https://www.youtube.com/watch?v=uK0VJYEI32I)
 - [Kanda Bongo Man: Zing Zong](https://youtu.be/NJB90Y-lYR0)
+- [Josef K: Heart of Song (Peel Session Version)](https://www.youtube.com/watch?v=9xezXvodR6M&t=224s)
 
 
 # Theory
