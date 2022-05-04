@@ -8,7 +8,7 @@
 - [Frente Cumbiero: Porrovia](https://frentecumbiero.bandcamp.com/track/porrov-a)
 - [Meridian Brothers / Conjunto Media Luna: Paz En La Tierra](https://meridianbrothers.bandcamp.com/album/paz-en-la-tierra)
 - [Mauskovic Dance Band: It's All Mauskovic](https://themauskovicdanceband.bandcamp.com/album/its-all-mauskovic-7-single)
-- https://romperayo.bandcamp.com/album/romperayo-descargas-pintorescas
+- [ROMPERAYO - Descargas pintorescas](https://romperayo.bandcamp.com/album/romperayo-descargas-pintorescas)
 - https://youtu.be/86SyRKRzOmE
 - https://romperayo.bandcamp.com/track/insurgentes-carism-ticos-llegaron-los-burros
 - [Track 5](https://analogafrica.bandcamp.com/album/afro-beat-airways-west-african-shock-waves-ghana-togo-1972-1978)
