@@ -26,6 +26,8 @@
 
 ![drawing](pentatonic.jpg)
 
+[Circle of fifths interactive](https://lotusmusic.com/circle-of-fifths-jazz.html)
+
 
 # Tech
 
