@@ -20,6 +20,7 @@
 - [Kanda Bongo Man: Zing Zong](https://youtu.be/NJB90Y-lYR0)
 - [Josef K: Heart of Song (Peel Session Version)](https://www.youtube.com/watch?v=9xezXvodR6M&t=224s)
 - [Jonah Sithole: Sabhuku](https://www.youtube.com/watch?v=jgBZow4fQuM)
+- [Abelardo Carbono and Quantic](https://www.youtube.com/watch?v=CZMh2iCCv18)
 
 
 # Theory
@@ -32,6 +33,7 @@
 # Tech
 
 - [Buchla Low Pass Gate](https://www.youtube.com/watch?v=NGz3dDnoVVk)
+- [DR110 cymbal/noise circuit](https://delptronics.com/images/misc/Boss%20DR-110%20Cymbal%20&%20Noise%20Circuits.png)
 
 # Art
 
