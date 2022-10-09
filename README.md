@@ -12,6 +12,7 @@
 - https://youtu.be/86SyRKRzOmE
 - https://romperayo.bandcamp.com/track/insurgentes-carism-ticos-llegaron-los-burros
 - [Track 5](https://analogafrica.bandcamp.com/album/afro-beat-airways-west-african-shock-waves-ghana-togo-1972-1978)
+- [Nissennenmondai](https://youtu.be/C6-DdkXS7d0)
 
 ## Simon's picks
 
